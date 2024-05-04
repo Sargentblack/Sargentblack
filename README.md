@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects 
 - 📫 How to reach me: tshepangtsetsekufa@gmail.com 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I'm 17 and a noob but I like tech stuff
+- ⚡ Fun fact: I'm also an artist check out my art: https://www.artstation.com/tshepangkufa1
 
 <!---
 Sargentblack/Sargentblack is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
